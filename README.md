@@ -1,6 +1,3 @@
-# CP3 Progress Report
-
-
 
 <br>
 
